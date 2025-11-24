@@ -1,0 +1,1 @@
+# dronekontrolufonksiyonile7
